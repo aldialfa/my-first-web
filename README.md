@@ -1,2 +1,0 @@
-# udin
-i am aldi
